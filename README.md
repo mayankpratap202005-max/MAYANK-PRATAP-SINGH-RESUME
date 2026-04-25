@@ -1,5 +1,7 @@
 # 👨‍💻 Mayank Pratap Singh
 
+![image alt](https://github.com/mayankpratap202005-max/MAYANK-PRATAP-SINGH-RESUME/blob/effacb2e24c3255710cf1604e1edad9f9142d2bb/VRINDAVAN%20PHOTO.jpg)
+
 🎓 B.Tech Computer Science Student  
 📍 Bulandshahr, Uttar Pradesh, India  
 
